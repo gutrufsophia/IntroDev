@@ -1,2 +1,2 @@
 # IntroDev
-Letterboxd se fosse bom.
+Letterboxd se fosse bom. (e sobre álbuns albunzitos ablue)
